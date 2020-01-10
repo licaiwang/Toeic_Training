@@ -1,4 +1,4 @@
-# [多益 550 基礎單字](Basic_New_Toeic_Vocabulary.doc)
+# [多益 550 基礎單字](Basic_New_Toeic_Vocabulary.pdf)
 
 # [多益 800~900 基礎單字線上背與測驗](https://quizlet.com/tw/415586682/new-toeic-golden-vocabulary-bible-13-health-flash-cards/)
 
