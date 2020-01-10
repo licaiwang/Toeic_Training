@@ -18,4 +18,4 @@
 比較好的做法是，**準備小本本、或整理單字的app，檢討完就把單字抄寫在上面。**
 以「隔天、隔三天、隔周」的頻率複習、如果一周後你還記得這個單字，恭喜你!你已經記住它了!
 
-[文章摘自](https://blog.amazingtalker.com/zh-tw/zh-eng/%E5%A4%9A%E7%9B%8A%E5%96%AE%E5%AD%97%E7%B8%BD%E6%95%B4%E7%90%86/10141/)
+[文章節錄自](https://blog.amazingtalker.com/zh-tw/zh-eng/%E5%A4%9A%E7%9B%8A%E5%96%AE%E5%AD%97%E7%B8%BD%E6%95%B4%E7%90%86/10141/)
