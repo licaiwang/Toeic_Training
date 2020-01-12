@@ -1,4 +1,5 @@
 # 多益聽力
+
   請**務必也解舊制的技巧**
   
 ## 解題技巧
@@ -13,3 +14,11 @@
 2. [英語小蛋糕Ricky - 新制多益聽力圖表題](https://www.youtube.com/watch?v=34vffA3Qetk)
 
 ### 實際測驗
+
+### 新制多益附解答共 20 回：
+
+寫一份加上檢討約花費 3 小時，請做好時間規劃
+
+一部影片為試題加解答，試題在前，解答在後
+
+新制多益試題(https://www.youtube.com/watch?v=-KXNISEAZe8&list=PLRovLoKPNV4RTm75cp7_xj22FqAt5MdBz)
