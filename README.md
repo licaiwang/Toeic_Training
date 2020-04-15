@@ -16,4 +16,4 @@
 4. [分數估算表](分數估算表.pdf)
 
 ### 資料來源
-    [分數對照表說明](https://news.stust.edu.tw/User/news_file%5C6001/200931795940_2.pdf)
+    [分數對照表說明].(https://news.stust.edu.tw/User/news_file%5C6001/200931795940_2.pdf)
